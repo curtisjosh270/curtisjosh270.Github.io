@@ -1,1 +1,0 @@
-# curtisjosh270.github.io
